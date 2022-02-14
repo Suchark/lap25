@@ -1,2 +1,2 @@
-# NAME:
-# STUDENT ID:
+# NAME: นางงสาวศชานุช รินนคำ
+# STUDENT ID: 640610670
